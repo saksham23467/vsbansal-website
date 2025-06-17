@@ -101,5 +101,5 @@ This project is proprietary and confidential. All rights reserved.
 ## Contact
 
 For any queries or support, please contact:
-- Email: info@vsbansal.com
-- Phone: +91 123 456 7890 
+- Email: vsbansalassociates@gmail.com
+- Phone: +91 9810558120
